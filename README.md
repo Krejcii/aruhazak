@@ -1,1 +1,1 @@
-https://krejcii.github.io/aruhazak/
+https://krejcii.github.io/aruhazak/aruhaz.html
